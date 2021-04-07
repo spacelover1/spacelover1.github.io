@@ -6,7 +6,8 @@ tags: feeling everyday
 ---
 
 
-> I have whatever I want. Apr 7
+> I have whatever I want.<br>
+Apr 7
 
 
 
