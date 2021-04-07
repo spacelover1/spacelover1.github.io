@@ -6,7 +6,7 @@ tags: feeling everyday
 ---
 
 
-> <span style="font-family:Georgia; font-size:4em">I have whatever I want.</span>  -Apr 7
+> <span style="font-family:Georgia;">I have whatever I want.</span>  -Apr 7
 
 
 
