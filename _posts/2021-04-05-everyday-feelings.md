@@ -10,5 +10,5 @@ tags: feeling everyday
 
 > The thought of doing something is eating me from inside, because I can't decide. -Apr 9
 
-> <span style="font-family:Times New Roman;">I feel so strong today, I know I can do it. </span> -Apr 11
+> <span style="font-family:Times New Roman;">I did it, I can do that either. </span> -Apr 11
 
