@@ -15,3 +15,7 @@ tags: feeling everyday
 > I like Hilary Swank, a lot! She is a great actress. -Apr 12
 
 > I do not like here. -Apr 13
+
+> Just a quick note, everything can end, everyone can leave you. Applies anywhere. -Apr14
+
+
