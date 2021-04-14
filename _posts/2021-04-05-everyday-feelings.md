@@ -16,6 +16,6 @@ tags: feeling everyday
 
 > I do not like here. -Apr 13
 
-> Just a quick note, everything can end, everyone can leave you. Applies anywhere. -Apr14
+> Remember this as a rule of thumb; everything can end, everyone can leave you. Applies anywhere. -Apr14
 
 
