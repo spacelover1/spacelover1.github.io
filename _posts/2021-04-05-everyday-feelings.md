@@ -19,3 +19,5 @@ tags: feeling everyday
 > Remember this as a rule of thumb; everything can end, everyone can leave you. Applies anywhere. -Apr14
 
 > SAY SOMETHING, ANYTHING! BUT DON'T EVER REMAIN SILENT, EVER! -Apr 16
+
+> I don't think they see my vision here! (kinda sure though) -Apr 19
