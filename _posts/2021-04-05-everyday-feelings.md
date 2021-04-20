@@ -21,3 +21,5 @@ tags: feeling everyday
 > SAY SOMETHING, ANYTHING! BUT DON'T EVER REMAIN SILENT, EVER! -Apr 16
 
 > I don't think they see my vision here! (kinda sure though) -Apr 19
+
+> I don't know what I am doing! But it's working. -Apr 20
