@@ -23,3 +23,5 @@ tags: feeling everyday
 > I don't think they see my vision here! (kinda sure though) -Apr 19
 
 > I don't know what I am doing! But it's working. -Apr 20
+
+> If I could only stop planning 100 steps ahead into future for everything that I see. -Apr 26
