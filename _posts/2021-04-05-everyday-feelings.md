@@ -25,3 +25,6 @@ tags: feeling everyday
 > I don't know what I am doing! But it's working. -Apr 20
 
 > If I could only stop planning 100 steps ahead into future for everything that I see. -Apr 26
+
+> Every events in the world is like a key on piano, it doesn't mean anything on its own but when you put them together like a puzzle you get the bigger and meaningful picture. But the point is that we can't put all those events together.
+Each piano key has a unique sound and when you touch them in a meaningful order, you have a music. -May 3
