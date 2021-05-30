@@ -29,5 +29,4 @@ tags: feeling everyday
 > Every events in the world is like a key on piano, it doesn't mean anything on its own but when you put them together like a puzzle you get the bigger and meaningful picture. But the point is that we can't put all those events together.
 Each piano key has a unique sound and when you touch them in a meaningful order, you have a music. -May 3
 
-
-I've learned something important from some of the books I've read, so I'm gonna write one.  -May 29
+> I've learned something important from some of the books I've read, so I'm gonna write one.  -May 29
