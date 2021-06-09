@@ -33,4 +33,4 @@ Each piano key has a unique sound and when you touch them in a meaningful order,
 
 > All I need now is a job with a place to stay. -Jun 9
 
-> There qas this time when I needed more time, when time was flying and now here I am, wasting time! -Jun 9
+> There was this time when I needed more time, when time was flying and now here I am, wasting time! -Jun 9
