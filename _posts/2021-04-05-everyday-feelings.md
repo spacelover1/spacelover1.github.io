@@ -30,3 +30,7 @@ tags: feeling everyday
 Each piano key has a unique sound and when you touch them in a meaningful order, you have a music. -May 3
 
 > I've learned something important from some of the books I've read, so I'm gonna write one.  -May 29
+
+> All I need now is a job with a place to stay. -Jun 9
+
+> There qas this time when I needed more time, when time was flying and now here I am, wasting time! -Jun 9
