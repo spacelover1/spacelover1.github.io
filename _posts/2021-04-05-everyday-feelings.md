@@ -34,3 +34,9 @@ Each piano key has a unique sound and when you touch them in a meaningful order,
 > All I need now is a job with a place to stay. -Jun 9
 
 > There was this time when I needed more time, when time was flying and now here I am, wasting time! -Jun 9
+
+> All we do is drive
+All we do is think about the feelings that we hide
+All we do is sit in silence waiting for a sign
+Sick and full of pride
+All we do is drive (Drive- Halsey) -Jun 15
