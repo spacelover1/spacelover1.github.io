@@ -40,3 +40,5 @@ All we do is think about the feelings that we hide<br>
 All we do is sit in silence waiting for a sign<br>
 Sick and full of pride<br>
 All we do is drive (Drive- Halsey) -Jun 15
+
+> I want something really good happent out of the blue. -Jun 21
