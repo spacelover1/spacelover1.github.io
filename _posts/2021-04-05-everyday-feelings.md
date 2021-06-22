@@ -42,3 +42,5 @@ Sick and full of pride<br>
 All we do is drive (Drive- Halsey) -Jun 15
 
 > I want something really good happent out of the blue. -Jun 21
+
+> I wish I could inject myself with the feelings I had 2 months ago, what was it that kept me motivated like that. - Jun 22
